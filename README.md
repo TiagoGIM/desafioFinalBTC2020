@@ -1,0 +1,1 @@
+Cre em deus pai
